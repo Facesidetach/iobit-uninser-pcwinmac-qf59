@@ -1,4 +1,4 @@
-# 
+# Inteligente IObit Uninstaller herramientas para Mac OS | Élite IObit Uninstaller herramientas para PC Windows. Con gestión del portapapeles y impulso de rendimiento — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
